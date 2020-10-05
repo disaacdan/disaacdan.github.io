@@ -1,2 +1,2 @@
 # websitetest1
-My first webstie ayy whoop
+My first website WHOOP!
